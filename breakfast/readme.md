@@ -10,7 +10,7 @@
 - Honey
 - Vanilla extract
 - Select toppings:
-  - [❗️ADD❗️]
+  - [Strawberries]
   - [❗️ADD❗️]
   - [❗️ADD❗️]
 
@@ -20,9 +20,10 @@
 ## Steps for preparation:
 1. Pour ingredients in a Mason jar in the following proportions (will be about 3x for large Mason jar):
   - 8 tablespoons chia seeds
-  - 2 cups alond milk or milk of choice
+  - 2 cups almond milk or milk of choice
   - 4 tsp honey or other sweetener
   - 1 tsp vanilla extract, more to taste
+  - all toppings
 2. Mix well. Let settle for 2-3 minutes and then mix again very well until you see NO CLUMPING.
 3. Cover the jar and store in fridge overnight or for at least 2 hours.
   - Note: If mixture is too liquidy at any point, add more chia seeds in 1 tsp increments.
